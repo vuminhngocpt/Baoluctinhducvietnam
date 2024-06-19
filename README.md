@@ -10,6 +10,7 @@ Các Mục Sau Đây Có Thể Giúp Bạn Tuỳ Từng Mức Độ Tôi Khuyên
 
 Trang Web Báo Cáo Hoặc Trợ Giúp Toàn Cầu 
 (https://www.wannatalkaboutit.com/vn/) Tiếng Việt
-
+Trang Web Tổ Chức Phi Lợi Nhuận Tại Việt Nam
+(https://beautifulmindvn.com)
 
 
