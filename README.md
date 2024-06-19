@@ -12,5 +12,8 @@ Trang Web Báo Cáo Hoặc Trợ Giúp Toàn Cầu
 (https://www.wannatalkaboutit.com/vn/) Tiếng Việt
 Trang Web Tổ Chức Phi Lợi Nhuận Tại Việt Nam
 (https://beautifulmindvn.com)
+Trang Facebook (https://www.facebook.com/beautifulmindvn?mibextid=LQQJ4d)
+
+Tôi chỉ tìm được bấy nhiêu đã xác thực an toàn cho bạn nếu bạn gặp vấn đề thực sự hãy Báo Cảnh Sát nơi bạn sinh sống hãy vào thẳng vấn đề bạn đang gặp phải vị trí và môi trường xung quanh bạn cũng có thể giúp cảnh sát tìm ra bạn số điện thoại tin cậy nhất là 113 hãy gọi và tìm cách nói vị trí và các thứ xung quanh bạn thời gian , mặt trời ... hãy nói ngắn gọn để họ biết bạn đang gặp vấn đề ( ví dụ bị bắt cóc ...) thiết bị có GPS điện thoại máy tính có thể xác định vị trí của bạn và gửi chúng cho cảnh sát mạng wifi hoặc sóng điện thoại thông thường cũng có thể xác định vị trí nếu dùng điện thoại bạn gửi vị trí hãy tìm cửa sổ hoặc chỗ có mặt trời chiếu vào vị trí sẽ chính xác hơn có thể gửi vị trí bằng tin nhắn SMS 
 
 
