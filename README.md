@@ -8,3 +8,8 @@ Các hành vi mua bán dâm cũng được gọi là bạo hành tình dục
 
 Các Mục Sau Đây Có Thể Giúp Bạn Tuỳ Từng Mức Độ Tôi Khuyên Bạn Nên Tìm Tư Vấn Viên Để Họ Tư Vấn Cho Bạn Xin Cảm Ơn ☺️ Bạn Có Thể Gửi Email Cho Tôi Để Đóng Góp Cũng Như Cần Giúp Đỡ Qua Địa Chỉ (00-octanes.sale@icloud.com)
 
+Trang Web Báo Cáo Hoặc Trợ Giúp Toàn Cầu 
+(https://www.wannatalkaboutit.com/vn/) Tiếng Việt
+
+
+
